@@ -1,5 +1,4 @@
 - 👋 Hi, I’m **Mr. Wiby**
 - 👀 I’m interested in **Death**
 - 💞️ I’m looking forward to **Die**
-- 😄 Pronouns: **He/Him/Idiot**
 - ⚡ Fun fact: **I'm an idiot**
